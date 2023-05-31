@@ -7,13 +7,13 @@
 
 - 👯 I’m looking to collaborate on **edatee server**
 
-- 👨‍💻 All of my projects are available at github [at github](at github)
+- 👨‍💻 All of my projects are available at github 
 
 - 💬 Ask me about **anything you want**
 
 - 📫 How to reach me **badass#0001**
 
-- 📄 Know about my experiences [dont have it](dont have it)
+- 📄 Know about my experiences dont have it
 
 - ⚡ Fun fact **I am funny**
 
