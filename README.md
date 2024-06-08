@@ -5,15 +5,15 @@
 
 - 🌱 I’m currently **learning HTML**
 
-- 👯 I’m looking to collaborate on **edatee server**
+- 👯 I’m looking to collaborate on **vanity aio**
 
 - 👨‍💻 All of my projects are available at github 
 
 - 💬 Ask me about **anything you want**
 
-- 📫 How to reach me **badass#0001**
+- 📫 How to reach me **https://t.me/SiljaG**
 
-- 📄 Know about my experiences dont have it
+- 📄 Know about my experiences **I dont have them**
 
 - ⚡ Fun fact **I am funny**
 
